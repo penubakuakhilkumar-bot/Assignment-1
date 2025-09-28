@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Penubaku Akhil Kumar
 
 📍 Andhra Pradesh, India
-📧 [akhilkumarpenubaku865@gmail.com](mailto:akhilkumarpenubaku865@gmail.com)
+📧 [penubakuakhilkumar@gmail.com](mailto:akhilkumarpenubaku865@gmail.com)
 🔗 [LinkedIn](https://www.linkedin.com/in/akhil-kumar-penubaku-544074206)
 
 ---
